@@ -1,4 +1,4 @@
-turing rolls over in his grave at the thought of me
+i can hear turing rolling in his grave
 
 <!---
 bing-1/bing-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
