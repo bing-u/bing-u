@@ -1,4 +1,4 @@
-i can hear turing rolling in his grave
+me when i pretend using org-mode makes up for my glaring personality flaws
 
 <!---
 bing-1/bing-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
